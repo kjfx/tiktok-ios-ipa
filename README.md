@@ -1,4 +1,4 @@
-# TikTok iOS 免拔卡教程，tiktok ios ipa 旧版下载（历史版本）
+# TikTok iOS 免拔卡教程，tiktok ios ipa 旧版历史版本下载
 
 ### 最新版的TikTok暂时不支持免拔卡使用，需要下载旧版。
 
